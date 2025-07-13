@@ -1,6 +1,6 @@
 ## Hi there! I'm NASHRAH FATHIMA
 
-👨🏻‍💻 About Me<br>💡 I'm passionate about exploring emerging technologies and building impactful tech solutions.<br>🎓 I'm currently pursuing Computer Science and Engineering at Vignan's Institute of Information Technology.<br>🤖 My current focus is on Artificial Intelligence, Machine Learning,Cloud Technologies and Web Development.<br>🌐 I enjoy staying updated with the latest tech trends and continuously expanding my skill set.<br>✍️ Outside of academics, I like writing content, contributing to tech communities, photography and exploring design.<br>✉️ Feel free to reach out to me at nashhhh14@gmail.com – happy to connect and collaborate!
+👨🏻‍💻 About Me<br>💡 I'm passionate about exploring emerging technologies and building impactful tech solutions.<br>🎓 I'm currently pursuing Computer Science and Engineering at Vignan's Institute of Information Technology.<br>🤖 My current focus is on Artificial Intelligence, Machine Learning, Cloud Technologies and Web Development.<br>🌐 I enjoy staying updated with the latest tech trends and continuously expanding my skill set.<br>✍️ Outside of academics, I like writing content, contributing to tech communities, photography and exploring design.<br>✉️ Feel free to reach out to me at nashhhh14@gmail.com – happy to connect and collaborate!
 
 
 ## 🌐 Socials:
